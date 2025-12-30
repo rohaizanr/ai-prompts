@@ -1,3 +1,5 @@
+ChatGPT + 1 imej ref
+
 4 Panel Komik – “Pak Pandir AI”
 Reference imej itu adalah Din Beramboi, lawak bodoh + relate, minimal teks.
 
